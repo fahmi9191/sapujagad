@@ -1,0 +1,2 @@
+# sapujagad 
+hargai karya orang
